@@ -1,0 +1,7 @@
+<h1>Shrek in the Backrooms Script - Auto Nuke, Get Items & More</h1>
+
+IntroduIntroducingIntroducing theIntroducing the only verified script script for script for the widely popular popular Rob popular Roblox popular Roblox game * *Sh *Shrek *Shrek in the the Back the Backrooms the Backrooms*, equipped with with features like like Bom like Bomber like Bomber, Kill Kill All Kill All, Kill All, Item Multiplierplier,plier, Disableable Nable Nukeable Nuke, and and Auto and Auto N and Auto Nuke, alongside additional tools visible in in the in the provided screenshot.. Launchedunched inunched in April,, the game game has game has surged to to nearly to nearly  to nearly 10 million million visits million visits and  100 100, 100,000 favorites favorites, task tasking tasking players tasking players with escaping escaping a escaping a relentless maze maze while avoiding Sh Shrek Shrek’ss pursuit and scav scavenging scavenging hidden items items. items. This items. This free script script grants players players a players a decisive advantage,, automating challenges,, bypassinging obstaclesing obstacles,ing obstacles, and amplifying amplifying survival amplifying survival efficiency to to dominate the the game the game’ the game’s tense,, competitive landscape effortlessly.
+
+**Shrek in the Backrooms Script - Auto Nuke, Get Items &amp; More - [Download](https://www.dlgram.com/public/files/api.php?shortened=t64Fx9)**
+
+
